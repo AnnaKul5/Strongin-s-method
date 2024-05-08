@@ -1,0 +1,1 @@
+# Strongin-s-method
